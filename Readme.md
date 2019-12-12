@@ -13,3 +13,9 @@ Mais un tout petit problème survenu. Il était incapable d'intéragir avec les 
 A part effrayer les passants, cela ne servit à rien.
 * "Je dois trouver une autre idée" * se dit-il.
 >>>>>>> 45de59b7491cc7fb5dd56d081e7990b7b49b0893
+
+
+Il s'effrondra et mourra de suite
+
+FIN DU CONFLIT ISREOPALESTINIEN
+===================
